@@ -8,3 +8,7 @@ Awesome lists of companies in pakistan
 * Pakistan
     * [airlifttech.com](https://airlifttech.com/careers/)
 
+     * [bazaar-tech.com](https://www.bazaar-tech.com/careers)
+
+  
+
