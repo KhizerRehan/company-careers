@@ -10,5 +10,7 @@ Awesome lists of companies in pakistan
 
      * [bazaar-tech.com](https://www.bazaar-tech.com/careers)
 
+    * [dastgyr.com](https://dastgyr.bamboohr.com/jobs/)
+
   
 
